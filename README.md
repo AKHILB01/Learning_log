@@ -1,3 +1,3 @@
 # Learning_log
-Still long way to gooo
+Still long way to go......
 
